@@ -12,5 +12,5 @@ My name is **Aldino Kemal Adi Gumawang**, here in my github repositories you can
 ### 📮 Get In Touch!
 - 📬 You can reach me by mentioning or direct message [@aldinokemal](https://instagram.com/aldinokemal) or just by [mail](mailto:aldinokemal2104@gmail.com)
 
-### Patreon
+### 🤠 Support me (Patreon)
 https://www.patreon.com/user?u=85090976
